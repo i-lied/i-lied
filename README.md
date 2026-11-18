@@ -2,3 +2,5 @@
 
 [Shax lied - Mairuma!](
 https://share.google/fVaMQPuz7kPscIo9i) fictkin! 
+
+Tell me if i ever followed anyone problematic kay! 
